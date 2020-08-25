@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome Guys
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. This is Kasun Hasanga\`s portfolio
